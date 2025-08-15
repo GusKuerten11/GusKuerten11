@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do GusKuerten11 😁
+## Bem-vindo(a) ao perfil do Gustavo Kuerten 😁
 
  <div>
    <a href="https://github.com/GusKuerten11">
